@@ -4,6 +4,6 @@
 
 Hey there! >w<
 
-I'm Lau, a girl from Spain who's making some Minecraft mods and starting an small social Discord community.
+I'm Laura, a girl from Spain who's making some Minecraft mods and starting an small social Discord community.
 
 Want to know more about me? You can talk with me and more people joining into my Discord community: https://discord.gg/x5xDy55tqE
