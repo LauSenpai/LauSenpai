@@ -3,7 +3,3 @@
 <p align="center"><a href="https://twitter.com/plsiwannadie" rel="nofollow"> <img src="https://img.shields.io/twitter/follow/plsiwannadie?color=pink&amp;label=FOLLOW%20ME%21&amp;logo=twitter&amp;style=for-the-badge" alt="Twitter Follow" /></a> <a href="https://discord.gg/x5xDy55tqE" rel="nofollow"><img src="https://img.shields.io/discord/838769245101228032?color=pink&amp;label=DISCORD&amp;logo=discord&amp;style=for-the-badge" alt="Discord" /></a></p>
 
 Heya! >w<
-
-My name is Laura, I'm from Spain. I'm working on some minecraft mods and doing my own minecraft server.
-
-Want to know more about me? You can talk with me and more people joining into my Discord community: [https://discord.gg/x5xDy55tqE](https://discord.gg/YuUjdvVBRT)
